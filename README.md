@@ -1,1 +1,1 @@
-# Softwate_Development_Intern_task_Prodigy_Infotech
+# Softwate_Development_Intern_Task_Prodigy_Infotech
